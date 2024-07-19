@@ -1,3 +1,6 @@
+# THIS IS A 1.12.2 MOD!!
+
+
 I did not make or crack this client full credit to rhack devs and @PlutoSolutions.
 <br>
 <br>
